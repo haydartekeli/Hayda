@@ -1,0 +1,2 @@
+# Hayda
+Mavi tik
